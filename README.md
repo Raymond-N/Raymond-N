@@ -33,7 +33,7 @@ My name is Raymond Natividad. I began my journey to become a Full-Stack Develope
 
 
 
-- I have adopted running as my hobby: Training for 6k race September 30 🏃‍♂️
+- I have adopted running as my hobby: Training for 10k race September 30 🏃‍♂️
 - I enjoy keeping up with my local sports franchises 🏀🏈⚾
 - I am a boxing and MMA enthusiast 🥊
 
